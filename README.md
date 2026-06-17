@@ -1,0 +1,1 @@
+# Guide-for-EQ-24-Quorum-Record
